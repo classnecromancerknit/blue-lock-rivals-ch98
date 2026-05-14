@@ -1,4 +1,4 @@
-#  
+#  blue lock rivals secure Scripts offers the most advanced blue lock rivals Script, with infinite resources and auto-collect. Perfect for dominating
 
 
 
